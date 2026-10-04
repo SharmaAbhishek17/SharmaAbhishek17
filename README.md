@@ -42,8 +42,8 @@
 ---
 
 ### 📫 Connect with me
-- 📧 Email: your-email@gmail.com
-- 💼 LinkedIn: (add link)
+- 📧 Email: abhi456190@gmail.com
+- 💼 LinkedIn: https://www.linkedin.com/in/abhishek-sharma-530611260/
 
 ---
 
